@@ -1,0 +1,2 @@
+# BOT
+gunakan dengan bijak
